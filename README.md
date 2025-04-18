@@ -27,7 +27,7 @@
 
 ### 📫 How to Reach Me
 - LinkedIn: [linkedin.com/in/your-username](https://linkedin.com/in/your-username)  
-- Email: your.email@example.com
+- Email: darakshaanjum111@gmail.com
 
 ---
 
